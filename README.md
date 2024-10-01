@@ -189,7 +189,6 @@ CSDN：[肆十二](https://blog.csdn.net/ECHOSON)
 
 现在关注以后就是老朋友喽！
 
-![image-20211212195912911](https://vehicle4cm.oss-cn-beijing.aliyuncs.com/typoraimgs/image-20211212195912911.png)
 
 
 
